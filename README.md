@@ -1,1 +1,2 @@
-# Endayt.github.io
+Hi, i'm Enduyt
+What up
